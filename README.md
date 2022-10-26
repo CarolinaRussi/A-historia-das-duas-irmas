@@ -1,4 +1,4 @@
-# A-historia-das-duas-irmas
+# A História das duas irmãs:
 
 “Eram cerca de 20:00 enquanto eu dirigia para o norte pela (Seattle-Tacoma) Strip… em vez de pegar a Intersate 5… essa estrada está cheia de caroneiros e prostitutas a esta hora da noite. Eu estava de olho em duas prostitutas fofas enquanto elas conversavam em um ponto de ônibus. Ambas eram bonitas, mas eu queria uma sozinha. Cerca de um quarto de milha na estrada eu vi uma cadela andando rápido pela calçada.
 
